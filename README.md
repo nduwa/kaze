@@ -1,2 +1,2 @@
 # kaze
-kaze neza
+kaze neza muri kimezamiryango
